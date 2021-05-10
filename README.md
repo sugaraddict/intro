@@ -1,5 +1,5 @@
 ### 自己紹介 
-my name is GY
+my name is GY  
 年齢　永遠の１８歳　~~24歳~~
 
 ##### 趣味　
